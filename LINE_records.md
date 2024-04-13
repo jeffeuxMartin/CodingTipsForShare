@@ -77,6 +77,13 @@
 > 
 > https://line.me/ti/g2/fa5AXZJO0gUHH0A09kjA6dbZ4K6H83k0wR4yYA?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
 
+### 10.
+```
+你講課的回家作業?
+```
+> 您已被邀請加入「Vue.js Taiwan社群」！請點選以下連結加入社群！
+> 
+> https://line.me/ti/g2/J7bTfoHgmfgc42C9baJNs2gwH00kAMd9QfJDsQ?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
 
 # Comments
 
