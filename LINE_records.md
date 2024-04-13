@@ -85,6 +85,29 @@
 > 
 > https://line.me/ti/g2/J7bTfoHgmfgc42C9baJNs2gwH00kAMd9QfJDsQ?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
 
+### 11.
+```
+我去年最後幾天面試進公司
+現在工作室沒問題
+只是做越久越感覺專業知識不足(emoji)
+```
+> 您已被邀請加入「好愛學日文！日語學習資源分享！」！請點選以下連結加入社群！
+> 
+> https://line.me/ti/g2/Dl9HTrsrLyz52LcQOZFAsaavYpXbY5Bjm0oACg?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
+
+### 12.
+```
+第2、4兩點連線的斜率：
+m=(3-3)/(-1-1)=0
+直線y=3
+(-2，a)⇒a=3
+(0，b)⇒b=3
+(2，C)⇒C=3
+```
+> 您已被邀請加入「數學」！請點選以下連結加入社群！
+>
+> https://line.me/ti/g2/e2eY05VFjVyvcaebxcuY00Eh_zP8n4CNJLHc_w?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
+
 # Comments
 
 ## Apr 5, 2024, 1:26 AM GMT+8
