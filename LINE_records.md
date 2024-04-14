@@ -108,6 +108,14 @@ m=(3-3)/(-1-1)=0
 >
 > https://line.me/ti/g2/e2eY05VFjVyvcaebxcuY00Eh_zP8n4CNJLHc_w?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
 
+### 13.
+```
+不好意思，請問各位大大，物件偵測時可以用prompt讓它只偵測某些物件嗎？
+```
+> 您已被邀請加入「AI 人工智慧」！請點選以下連結加入社群！
+> 
+> https://line.me/ti/g2/2XetDk6BDI7I3A-mK-7ZJc1mKvNFkAmP0Fn7tA?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
+
 # Comments
 
 ## Apr 5, 2024, 1:26 AM GMT+8
