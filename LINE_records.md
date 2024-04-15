@@ -164,6 +164,49 @@ https://line.me/ti/g2/AlLRX_OE8NwcUaWrlyASV-Zx1RtcyNmo51uQTg?utm_source=invitati
 https://line.me/ti/g2/6cWjfVAuGrvHgc-_XZouOCiWqiy-QEJHcW1cvQ?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
 
 
+```
+群主的AI動畫在哪裡的呢？
+```
+您已被邀請加入「AI 工具研究社 👩‍🔬👩‍🎓」！請點選以下連結加入社群！
+https://line.me/ti/g2/sto5YXqUCdiPpIGnw9wpwUDOODFsgAsiKgeHaw?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
+
+
+```
+那時候有出現詐騙廣告
+```
+您已被邀請加入「一起自學韓文吧！韓語自學分享！」！請點選以下連結加入社群！
+https://line.me/ti/g2/shZzgjQAX7GocozfHsjZ59HB9QrsZs7fP48lgQ?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
+
+```
+ 金融、資安IT產業、人事管理，薪資討論社群！
+https://line.me/ti/g2/6RMIUFfgGKNZXP_DLYjxccVza2SRH-wd48Ksvw
+```
+您已被邀請加入「python Taiwan、前端；工程師；家電手機；電腦開發討論」！請點選以下連結加入社群！
+https://line.me/ti/g2/Fox2zZivyTIhATguqT6IO9g7goBXVuhmQSSvEw?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
+
+
+
+```
+請問 為何R越小，功率一定越大，P=I平方*R ，不就R越小 他就越小？
+```
+您已被邀請加入「高考/普考/初等考（電力工程/電子工程）國營聯招/關務特考（電機/儀電）台電中油台糖台水（電類雇員）」！請點選以下連結加入社群！
+https://line.me/ti/g2/1IWKv1pbSuCbjgm1whVjWUWUlErkMM_9XkmyyQ?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
+
+```
+胸部擠成這樣 不難受嗎
+```
+您已被邀請加入「台灣跨性別協會」！請點選以下連結加入社群！
+https://line.me/ti/g2/MSObNQX4SFY9FJoDrO2zgBugW1Os6InVgxc1qQ?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
+
+```
+打算寫個平台..
+
+跑一堆 類似 樞紐分析的表格 阿 ?
+```
+您已被邀請加入「Python Taiwan 交流聚會」！請點選以下連結加入社群！
+https://line.me/ti/g2/dyPAMmBboykvvFB_lXj440c__aI6KpGqjJqxOA?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
+
+
 
 # Comments
 
