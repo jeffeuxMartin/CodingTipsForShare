@@ -124,6 +124,46 @@ m=(3-3)/(-1-1)=0
 > 
 > https://line.me/ti/g2/ZI2S30s7PgxSw7mLUPBmOiw1PwgzKc7cgbsxnA?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
 
+### 15.
+```
+每次有女角我幾乎抽不到
+```
+> 您已被邀請加入「ACG動漫「アニメ」交流群」！請點選以下連結加入社群！
+>
+> https://line.me/ti/g2/LmE16LA0ZNZGcFb3tN4qFWaikPccda6cyWksSA?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
+
+```
+而且台灣RC結構建築多到很扯
+我都懷疑是當碉堡用 遠距飛彈還沒那麼好炸勒
+```
+您已被邀請加入「《行動代號2027》讓我們動起來」！請點選以下連結加入社群！
+https://line.me/ti/g2/BkiGYyqQ10pBu_0ABP45gP2xhLpXv_kSiuz9dw?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
+
+```
+驕傲吧 你很強
+```
+您已被邀請加入「Hololiveの討論群」！請點選以下連結加入社群！
+https://line.me/ti/g2/Ca36_B2JltRKjeaLF9voZhkTEFwJZTx84GM-LA?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
+
+```
+一般認為的原文書↑
+```
+您已被邀請加入「今日開始學日文！日語學習不要等！」！請點選以下連結加入社群！
+https://line.me/ti/g2/l3S7ap-TkMcxzYvpKqyDW5RTr8w44M5l_Mt74g?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
+
+```
+台北剛剛連風帶雨爆幹大
+```
+您已被邀請加入「ACG 動漫討論群」！請點選以下連結加入社群！
+https://line.me/ti/g2/AlLRX_OE8NwcUaWrlyASV-Zx1RtcyNmo51uQTg?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
+
+```
+態とじゃない
+```
+您已被邀請加入「🇯🇵日語咖啡廳🍣日本語カフェ👘」！請點選以下連結加入社群！
+https://line.me/ti/g2/6cWjfVAuGrvHgc-_XZouOCiWqiy-QEJHcW1cvQ?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
+
+
 
 # Comments
 
