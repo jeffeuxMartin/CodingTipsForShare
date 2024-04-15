@@ -116,6 +116,15 @@ m=(3-3)/(-1-1)=0
 > 
 > https://line.me/ti/g2/2XetDk6BDI7I3A-mK-7ZJc1mKvNFkAmP0Fn7tA?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
 
+### 14.
+```
+不會不會 有幫到你就好XD
+```
+> 您已被邀請加入「📊 資料科學家的工作日常」！請點選以下連結加入社群！
+> 
+> https://line.me/ti/g2/ZI2S30s7PgxSw7mLUPBmOiw1PwgzKc7cgbsxnA?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
+
+
 # Comments
 
 ## Apr 5, 2024, 1:26 AM GMT+8
