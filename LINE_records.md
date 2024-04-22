@@ -229,3 +229,9 @@ https://line.me/ti/g2/dyPAMmBboykvvFB_lXj440c__aI6KpGqjJqxOA?utm_source=invitati
 ```
 ![image](https://gist.github.com/assets/43311603/43e05eb7-51f4-488b-a979-2a82aea32253)
 ```
+
+# Merged 直接按掉
+![image](https://github.com/jeffeuxMartin/CodingTipsForShare/assets/43311603/9dca457e-02a8-45b3-8379-64adcd84fe62)
+![image](https://github.com/jeffeuxMartin/CodingTipsForShare/assets/43311603/29a16208-417e-457b-af98-9b5ecce797d4)
+
+
